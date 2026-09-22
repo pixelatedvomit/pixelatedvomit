@@ -8,4 +8,5 @@
 <br></td></tr></table></div>
 <img width="733" height="181" alt="1000076642" src="https://github.com/user-attachments/assets/da8eb516-449c-4703-9bb6-cee6d7de50fb" />
 <p align="center">$\color{#C3C3C3}{"i​have​wings​,​i​can​feel​them."}$</p>
-wip OH MY GOD
+wip OH MY GOD ignore the rep under there 👀
+<img width="1080" height="1233" alt="1000076784" src="https://github.com/user-attachments/assets/b030e500-e8dc-4f5e-8935-b8b06ced94f2" />
